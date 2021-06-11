@@ -17,5 +17,5 @@ AP Computer Science final project
 
 1. Job expierence: Popeyes, worked as a memeber and Crystal springs, worked as a lifegaurd
 2. Sports: Soccer and track at EBHS and Soccer for Match Fit academy
-3. Rone Isreal Memoria award winner
+3. Rone Isreal Memorial award winner
 
